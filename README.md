@@ -27,6 +27,6 @@ I help organizations **translate business needs into actionable solutions**, opt
 ---
 
 ## 📫 Let's Connect
-- LinkedIn: linkedin.com/in/moses-odioko 
+- LinkedIn: www.linkedin.com/in/moses-odioko 
 - Email: odiokomoses@gmail.com
 
